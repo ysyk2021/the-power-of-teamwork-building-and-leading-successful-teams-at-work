@@ -1,5 +1,3 @@
-Chapter 7: Navigating Diversity and Inclusion in Teams
-======================================================
 
 In this chapter, we'll explore the importance of diversity and inclusion in teams and how to navigate them successfully in the workplace. By understanding these principles, you can become more effective in leading and developing diverse and inclusive teams.
 

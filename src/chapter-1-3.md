@@ -1,5 +1,3 @@
-Benefits of Building and Leading Successful Teams
-==========================================================================
 
 In this chapter, we'll explore the benefits of building and leading successful teams in the workplace. By understanding these benefits, you can develop your leadership skills and create a more positive and productive work environment.
 

@@ -1,5 +1,3 @@
-Fostering Creativity and Innovation
-============================================================================
 
 In this chapter, we'll explore how to empower teams for success by fostering creativity and innovation. By understanding these principles and strategies, you can become more effective in building and leading successful teams.
 

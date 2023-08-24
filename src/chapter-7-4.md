@@ -1,5 +1,3 @@
-Celebrating Differences and Recognizing Accomplishments
-===============================================================================================================
 
 In this chapter, we'll explore how to celebrate differences and recognize accomplishments in teams that are diverse and inclusive. By understanding these principles and strategies, you can become more effective in leading diverse teams that achieve success.
 

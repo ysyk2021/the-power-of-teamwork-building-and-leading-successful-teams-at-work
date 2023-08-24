@@ -1,5 +1,3 @@
-Chapter 6: Empowering Teams for Success
-=======================================
 
 In this chapter, we'll explore the principles of empowerment and how to empower teams for success in the workplace. By understanding these principles, you can become more effective in leading and developing high-performing teams.
 

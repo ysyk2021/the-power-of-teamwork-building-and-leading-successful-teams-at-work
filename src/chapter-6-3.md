@@ -1,5 +1,3 @@
-Encouraging Ownership and Responsibility
-=================================================================================
 
 In this chapter, we'll explore how to empower teams for success by encouraging ownership and responsibility. By understanding these principles and strategies, you can become more effective in building and leading successful teams.
 

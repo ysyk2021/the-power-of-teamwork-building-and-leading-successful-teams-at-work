@@ -1,5 +1,3 @@
-Developing Strategies for Leading Change
-==================================================================================
 
 In this chapter, we'll explore how to manage change through teams and develop strategies for leading change in the workplace. By understanding these principles, you can become more effective in navigating change and building successful teams that adapt to new challenges.
 

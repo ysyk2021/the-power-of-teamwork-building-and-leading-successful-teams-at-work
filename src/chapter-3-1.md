@@ -1,5 +1,3 @@
-Techniques for Cultivating a Team-Oriented Mindset
-=================================================================================================
 
 In this chapter, we'll explore techniques for cultivating a team-oriented mindset. By developing a team-oriented mindset, you can become a more effective and collaborative team member, contributing to the success of your team and your organization.
 

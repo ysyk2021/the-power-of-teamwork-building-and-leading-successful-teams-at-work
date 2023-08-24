@@ -1,5 +1,3 @@
-Overview of Teamwork
-==================================================
 
 In this chapter, we'll provide an overview of teamwork and its importance in building successful teams in the workplace. By understanding the key principles of teamwork, you can create a more effective and productive work environment that values collaboration, communication, and mutual support.
 

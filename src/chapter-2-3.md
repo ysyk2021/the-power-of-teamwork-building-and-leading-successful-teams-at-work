@@ -1,5 +1,3 @@
-Assessing Your Personal Approach to Teamwork
-==========================================================================
 
 In this chapter, we'll explore how to assess your personal approach to teamwork and identify areas for growth and development. By understanding your strengths and weaknesses as a team member, you can become more effective in collaborating with others and building successful teams in the workplace.
 

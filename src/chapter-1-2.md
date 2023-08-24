@@ -1,5 +1,3 @@
-Common Misconceptions About Teamwork
-=============================================================
 
 In this chapter, we'll explore common misconceptions about teamwork. By understanding these misconceptions, you can develop a more accurate and effective approach to building and leading successful teams in the workplace.
 

@@ -1,5 +1,3 @@
-Understanding the Importance of Diversity and Inclusion
-===============================================================================================================
 
 In this chapter, we'll explore the importance of diversity and inclusion in teams, and how to navigate diverse and inclusive teams effectively. By understanding these principles and strategies, you can become more effective in leading diverse teams that achieve success.
 

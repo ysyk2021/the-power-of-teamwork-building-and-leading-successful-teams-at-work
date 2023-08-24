@@ -1,5 +1,3 @@
-Developing Empathy and Compassion Through Teamwork
-=================================================================================================
 
 In this chapter, we'll explore how to develop empathy and compassion through teamwork, which is an important part of developing a team-oriented mindset. By understanding these principles and strategies, you can become more effective in building and leading successful teams.
 

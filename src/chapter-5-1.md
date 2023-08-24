@@ -1,5 +1,3 @@
-Understanding the Qualities of Effective Team Leaders
-===========================================================================================
 
 In this chapter, we'll explore the qualities of effective team leaders. By understanding these principles and strategies, you can become more effective in building and leading successful teams.
 

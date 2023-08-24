@@ -1,5 +1,3 @@
-Chapter 3: Developing a Team-Oriented Mindset
-=============================================
 
 In this chapter, we'll explore the strategies and techniques for developing a team-oriented mindset. By understanding these principles, you can become more effective in building and leading successful teams.
 

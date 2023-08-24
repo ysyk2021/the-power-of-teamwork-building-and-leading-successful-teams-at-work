@@ -1,5 +1,3 @@
-Identifying Team Roles and Responsibilities
-=================================================================================
 
 In this chapter, we'll explore how to identify team roles and responsibilities to build successful teams. By understanding these principles and strategies, you can become more effective in building and leading successful teams.
 

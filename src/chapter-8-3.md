@@ -1,5 +1,3 @@
-Managing Resistance and Conflict
-==========================================================================
 
 In this chapter, we'll explore how to manage resistance and conflict when implementing change through teams. By understanding these principles, you can become more effective in navigating change and building successful teams that adapt to new challenges.
 

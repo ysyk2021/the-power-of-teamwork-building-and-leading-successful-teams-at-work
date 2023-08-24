@@ -1,5 +1,3 @@
-Establishing Trust and Respect
-====================================================================
 
 In this chapter, we'll explore how to build successful teams by establishing trust and respect. By understanding these principles and strategies, you can become more effective in building and leading successful teams.
 

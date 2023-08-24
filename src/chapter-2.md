@@ -1,5 +1,3 @@
-Chapter 2: Defining Teamwork
-============================
 
 In this chapter, we'll define teamwork and explore the science behind it. By understanding these principles, you can become more effective in building and leading successful teams.
 

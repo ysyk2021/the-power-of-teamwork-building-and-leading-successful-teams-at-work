@@ -1,5 +1,3 @@
-Building Culturally Competent Teams
-===========================================================================================
 
 In this chapter, we'll explore the strategies for building culturally competent teams that navigate diversity and inclusion effectively. By understanding these principles, you can become more effective in leading diverse teams that achieve their goals.
 

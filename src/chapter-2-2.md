@@ -1,5 +1,3 @@
-Understanding the Science Behind Teamwork
-=======================================================================
 
 In this chapter, we'll explore the science behind teamwork and how it contributes to building successful teams in the workplace. By understanding the underlying principles of teamwork, you can create a more effective and productive work environment that values collaboration, communication, and mutual support.
 

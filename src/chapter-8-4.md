@@ -1,5 +1,3 @@
-Celebrating Successes and Recognizing Accomplishments
-===============================================================================================
 
 In this chapter, we'll explore the importance of celebrating successes and recognizing accomplishments when managing change through teams. By understanding these principles, you can become more effective in leading teams and navigating change in the workplace.
 

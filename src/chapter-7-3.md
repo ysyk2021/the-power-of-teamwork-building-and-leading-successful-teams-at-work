@@ -1,5 +1,3 @@
-Managing Bias and Stereotypes
-=====================================================================================
 
 In this chapter, we'll explore how to manage bias and stereotypes in teams that are diverse and inclusive. By understanding these principles and strategies, you can become more effective in leading diverse teams that achieve success.
 

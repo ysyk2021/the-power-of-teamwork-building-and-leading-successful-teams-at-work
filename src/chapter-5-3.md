@@ -1,5 +1,3 @@
-Providing Feedback and Recognition
-========================================================================
 
 In this chapter, we'll explore how to provide feedback and recognition as an effective team leader. By understanding these principles and strategies, you can become more effective in building and leading successful teams.
 
@@ -32,5 +30,4 @@ Conclusion
 ----------
 
 Providing feedback and recognition requires understanding the importance of feedback and recognition, providing constructive feedback, recognizing achievements, creating a culture of feedback and recognition, and encouraging self-reflection. Remember to stay true to your values and be open to collaboration, communication, and mutual support as means of achieving success. With time, patience, and a commitment to providing feedback and recognition effectively, you can build successful teams that leverage the strengths of all team members and achieve their goals in a constantly changing workplace.
-
 

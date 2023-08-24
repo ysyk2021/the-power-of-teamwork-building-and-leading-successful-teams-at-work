@@ -1,5 +1,3 @@
-Chapter 8: Managing Change Through Teams
-========================================
 
 In this chapter, we'll explore how to manage change through teams. By understanding the principles of effective change management, you can become more effective in leading teams and navigating change in the workplace.
 

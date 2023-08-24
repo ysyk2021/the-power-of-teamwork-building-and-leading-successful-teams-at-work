@@ -1,5 +1,3 @@
-Setting Realistic Goals and Objectives
-=====================================================================================
 
 In this chapter, we'll explore how to develop a team-oriented mindset by setting realistic goals and objectives. By understanding these principles and strategies, you can become more effective in building and leading successful teams.
 

@@ -1,5 +1,3 @@
-Chapter 4: Building Successful Teams
-====================================
 
 In this chapter, we'll explore the key elements of building successful teams in the workplace. By understanding these principles, you can become more effective in leading and developing high-performing teams.
 

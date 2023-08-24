@@ -1,5 +1,3 @@
-Utilizing Positive Self-Talk and Visualization
-=============================================================================================
 
 In this chapter, we'll explore how to develop a team-oriented mindset by utilizing positive self-talk and visualization. By understanding these principles and strategies, you can become more effective in building and leading successful teams.
 

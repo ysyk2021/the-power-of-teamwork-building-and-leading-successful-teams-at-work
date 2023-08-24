@@ -1,5 +1,3 @@
-Providing Autonomy and Accountability
-==============================================================================
 
 In this chapter, we'll explore how to empower teams for success by providing autonomy and accountability. By understanding these principles and strategies, you can become more effective in building and leading successful teams.
 
