@@ -1,5 +1,4 @@
-Chapter 7: Developing Strategies for Leading Change
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Change is an inevitable part of any organization's growth and success. As a leader, it is your responsibility to navigate the challenges that come with change and guide your team through the transition process. In this chapter, we will explore effective strategies for leading change within your team and organization.
 

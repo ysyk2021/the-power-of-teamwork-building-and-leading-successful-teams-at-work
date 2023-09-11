@@ -1,5 +1,4 @@
-Chapter 22: Managing Resistance and Conflict
-============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of managing resistance and conflict in building and leading successful teams. While teamwork can bring great benefits, it also presents challenges such as resistance to change, differing opinions, and conflict. Effective leaders understand the significance of addressing these issues promptly and constructively. By fostering open communication, promoting understanding, and implementing conflict resolution strategies, leaders can navigate resistance and conflict, allowing the team to thrive. Let's delve into the key aspects of managing resistance and conflict.
 

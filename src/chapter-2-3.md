@@ -1,5 +1,4 @@
-Chapter 2: Assessing Your Personal Approach to Teamwork
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of assessing your personal approach to teamwork in building and leading successful teams at work. Understanding your strengths, weaknesses, and preferences as a team member allows you to enhance your contributions, improve collaboration, and maximize your effectiveness within a team dynamic. Let's delve into strategies for assessing your personal approach to teamwork.
 

@@ -1,5 +1,4 @@
-Chapter 10: Managing Bias and Stereotypes
-=========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the critical importance of managing bias and stereotypes in building and leading successful teams. Bias and stereotypes, whether conscious or unconscious, can undermine teamwork, hinder collaboration, and impede individual growth. By understanding and actively addressing these biases, teams can create an inclusive and equitable environment that fosters diversity, productivity, and innovation. Let's delve into the process of managing bias and stereotypes within teams.
 

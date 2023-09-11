@@ -1,5 +1,4 @@
-Chapter 12: Providing Autonomy and Accountability
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of providing autonomy and accountability when building and leading successful teams at work. Autonomy refers to empowering team members with the freedom to make decisions and take ownership of their work, while accountability ensures that individuals are responsible for their actions and outcomes. By striking a balance between autonomy and accountability, leaders can create an environment that fosters trust, promotes innovation, and drives team success. Let's delve into practical strategies for providing autonomy and accountability within teams.
 

@@ -1,5 +1,4 @@
-Chapter 14: Utilizing Positive Self-Talk and Visualization
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the powerful techniques of utilizing positive self-talk and visualization in building and leading successful teams. Positive self-talk involves cultivating a positive mindset and using affirmative language to boost confidence and motivation. Visualization, on the other hand, entails mentally rehearsing desired outcomes to enhance performance and goal attainment. By incorporating these practices into team dynamics, leaders can inspire and empower their team members to achieve exceptional results. Let's delve into the key aspects of utilizing positive self-talk and visualization.
 

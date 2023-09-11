@@ -1,5 +1,4 @@
-Chapter 6: Understanding the Principles of Empowerment
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the principles of empowerment and their significance in building and leading successful teams at work. Empowerment is the process of granting individuals the authority, autonomy, and support to take ownership of their work, make decisions, and contribute to the success of the team. Empowered team members are more engaged, motivated, and accountable, which ultimately leads to higher performance and innovation. Let's delve into the key principles of empowerment and how they can be applied in a team setting.
 

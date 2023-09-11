@@ -1,5 +1,4 @@
-Chapter 5: Providing Feedback and Recognition
-=============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significance of providing feedback and recognition within teams. Effective feedback and recognition are essential for fostering growth, improving performance, and creating a positive team culture. By understanding the principles and strategies behind giving constructive feedback and meaningful recognition, leaders can empower their team members, enhance collaboration, and drive overall team success. Let's dive into the process of providing feedback and recognition.
 

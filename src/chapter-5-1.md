@@ -1,5 +1,4 @@
-Chapter 11: Understanding the Qualities of Effective Team Leaders
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the essential qualities that make a team leader effective in building and leading successful teams. Effective team leaders play a critical role in fostering collaboration, inspiring motivation, and achieving goals. By understanding and embodying these qualities, leaders can create a positive team culture, empower their team members, and drive exceptional performance. Let's delve into the key qualities of effective team leaders.
 

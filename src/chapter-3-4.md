@@ -1,5 +1,4 @@
-Chapter 8: Developing Empathy and Compassion through Teamwork
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the profound impact of empathy and compassion within teams. Developing these qualities enhances understanding, strengthens relationships, and fosters a supportive team culture. By embracing empathy and compassion, individuals can create a more collaborative and cohesive team environment that promotes overall well-being and success. Let's delve into the process of developing empathy and compassion through teamwork.
 

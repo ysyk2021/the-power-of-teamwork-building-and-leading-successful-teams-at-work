@@ -1,5 +1,4 @@
-Chapter 10: Encouraging Ownership and Responsibility
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of encouraging ownership and responsibility within teams to foster a culture of accountability, engagement, and high performance. When team members take ownership of their work and feel a sense of responsibility, they are more likely to be proactive, invested, and committed to achieving team goals. By cultivating an environment that promotes ownership and responsibility, leaders can empower their teams to excel and drive success. Let's dive into practical strategies for encouraging ownership and responsibility within teams.
 

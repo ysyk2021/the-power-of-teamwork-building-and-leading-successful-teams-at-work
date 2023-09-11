@@ -1,5 +1,4 @@
-Chapter 17: Adapting to Changes in the Workplace
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for adapting to changes in the workplace in building and leading successful teams. In today's fast-paced and evolving business landscape, the ability to adapt is crucial for team success. By embracing change, fostering resilience, and promoting a growth mindset, leaders can empower their teams to navigate transitions effectively and thrive in dynamic environments. Let's delve into the key aspects of adapting to changes in the workplace.
 

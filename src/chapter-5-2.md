@@ -1,5 +1,4 @@
-Chapter 7: Developing Leadership Skills and Competencies
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of developing leadership skills and competencies within teams. Effective leadership is a critical driver of team success, as it influences motivation, communication, decision-making, and overall team performance. By understanding and nurturing leadership skills and competencies, individuals can become effective leaders who inspire, guide, and empower their teams. Let's delve into the process of developing leadership skills and competencies.
 

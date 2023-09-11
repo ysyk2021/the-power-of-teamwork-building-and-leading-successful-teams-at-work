@@ -1,5 +1,4 @@
-Chapter 12: Setting Realistic Goals and Objectives
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of setting realistic goals and objectives in building and leading successful teams. Effective goal setting provides direction, clarity, and motivation for team members to work towards a shared vision. By understanding how to set realistic goals and objectives, leaders can enhance team performance, promote accountability, and achieve desired outcomes. Let's delve into the key aspects of setting realistic goals and objectives.
 

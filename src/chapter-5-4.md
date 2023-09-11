@@ -1,5 +1,4 @@
-Chapter 13: Managing Conflict and Challenges
-============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the crucial skill of managing conflict and challenges in building and leading successful teams. Conflict and challenges are inevitable in any team setting, but effective leaders understand how to navigate them constructively. By learning strategies to manage conflict and overcome challenges, leaders can foster a positive and productive team environment. Let's delve into the key aspects of managing conflict and challenges.
 

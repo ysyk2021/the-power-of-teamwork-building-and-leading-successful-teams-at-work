@@ -1,5 +1,4 @@
-Chapter 4: Establishing Trust and Respect
-=========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the vital importance of establishing trust and respect within teams. Trust and respect are the foundation of effective teamwork, fostering open communication, collaboration, and a positive work culture. By understanding the key elements and strategies for building trust and respect, leaders can create an environment where team members feel valued, supported, and motivated to perform at their best. Let's delve into the process of establishing trust and respect.
 

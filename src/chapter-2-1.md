@@ -1,5 +1,4 @@
-Chapter 1: Overview of Teamwork
-===============================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will provide an overview of teamwork and its significance in building and leading successful teams at work. Teamwork is the collaborative effort of individuals working together towards a common goal. It involves leveraging the strengths and skills of team members to accomplish tasks, solve problems, make decisions, and achieve shared objectives. Understanding the fundamental aspects of teamwork is essential for leaders to cultivate a productive and cohesive team environment. Let's explore the key elements of teamwork.
 

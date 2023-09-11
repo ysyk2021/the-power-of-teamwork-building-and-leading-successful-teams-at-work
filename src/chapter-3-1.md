@@ -1,5 +1,4 @@
-Chapter 16: Techniques for Cultivating a Team-Oriented Mindset
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore techniques for cultivating a team-oriented mindset in building and leading successful teams. A team-oriented mindset is crucial for fostering collaboration, trust, and synergy within a team. By instilling a shared sense of purpose, effective communication, and a focus on collective goals, leaders can create a strong foundation for teamwork and maximize team performance. Let's delve into the key aspects of cultivating a team-oriented mindset.
 

@@ -1,5 +1,4 @@
-Chapter 15: Celebrating Differences and Recognizing Accomplishments
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of celebrating differences and recognizing accomplishments in building and leading successful teams. Embracing diversity and acknowledging individual and team achievements fosters inclusivity, motivation, and a sense of belonging. By creating a culture of celebration and recognition, leaders can enhance team dynamics, boost morale, and drive continuous improvement. Let's delve into the key aspects of celebrating differences and recognizing accomplishments.
 

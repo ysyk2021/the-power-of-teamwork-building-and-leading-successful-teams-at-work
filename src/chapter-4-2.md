@@ -1,5 +1,4 @@
-Chapter 4: Identifying Team Roles and Responsibilities
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of identifying team roles and responsibilities in building and leading successful teams at work. Clear and well-defined roles and responsibilities are essential for effective teamwork, as they provide clarity, promote accountability, and ensure that tasks and functions are allocated appropriately. By identifying team roles and responsibilities, leaders can optimize individual strengths, enhance collaboration, and drive overall team performance. Let's dive into strategies for identifying team roles and responsibilities.
 

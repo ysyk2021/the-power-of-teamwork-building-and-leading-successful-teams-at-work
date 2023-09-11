@@ -1,5 +1,4 @@
-Chapter 8: Understanding the Elements of Successful Teams
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the key elements that contribute to building and leading successful teams at work. Understanding these elements is crucial for creating an environment where teams can thrive, collaborate effectively, and achieve exceptional results. By recognizing and nurturing these elements, leaders can set their teams up for success. Let's delve into the essential elements of successful teams.
 

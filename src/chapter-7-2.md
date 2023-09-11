@@ -1,5 +1,4 @@
-Chapter 9: Building Culturally Competent Teams
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of building culturally competent teams in today's diverse and globalized workplace. Culturally competent teams possess the knowledge, skills, and attitudes necessary to effectively work with individuals from different cultures and backgrounds. By embracing cultural diversity and fostering inclusivity, teams can enhance communication, collaboration, and overall performance. Let's delve into the process of building culturally competent teams.
 

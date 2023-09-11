@@ -1,5 +1,4 @@
-Chapter 21: Celebrating Successes and Recognizing Accomplishments
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of celebrating successes and recognizing accomplishments in building and leading successful teams. By acknowledging and appreciating the achievements of individuals and the team, leaders can foster a positive work environment, boost morale, and increase motivation. Effective celebration and recognition practices can also enhance team cohesion and reinforce desired behaviors. Let's delve into the key aspects of celebrating successes and recognizing accomplishments.
 

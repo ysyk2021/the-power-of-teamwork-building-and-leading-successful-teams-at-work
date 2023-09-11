@@ -1,5 +1,4 @@
-Chapter 3: Understanding the Science Behind Teamwork
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the science behind teamwork and explore the psychological and social dynamics that contribute to effective collaboration. Understanding the underlying principles and concepts can help leaders and team members optimize their teamwork strategies and create high-performing teams. Let's explore the science behind teamwork.
 

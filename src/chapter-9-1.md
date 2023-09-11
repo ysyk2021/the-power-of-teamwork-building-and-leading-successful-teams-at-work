@@ -1,5 +1,4 @@
-Chapter 18: Tracking Progress and Measuring Results
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of tracking progress and measuring results in building and leading successful teams. Effective performance tracking allows leaders to monitor the team's progress towards goals, identify areas for improvement, and make data-driven decisions. By implementing robust measurement techniques and fostering a culture of accountability, leaders can optimize team performance and drive continuous growth. Let's delve into the key aspects of tracking progress and measuring results.
 
